@@ -14,7 +14,7 @@ My stories explore power, connection, and the courage it takes to be truly seen.
 
 ## A Ranger Reforged
 
-**Coming Spring 2025**
+**Coming Fall 2026**
 
 When elven ranger Arivalene stumbles upon an enchanted tower deep in the Deepwood, she discovers sorcerer Jarreth and his three bound companions—women who chose transformation over freedom, power over independence.
 
