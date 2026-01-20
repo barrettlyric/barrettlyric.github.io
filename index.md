@@ -16,13 +16,13 @@ My stories explore power, connection, and the courage it takes to be truly seen.
 
 **Coming Fall 2026**
 
-When elven ranger Arivalene stumbles upon an enchanted tower deep in the Deepwood, she discovers sorcerer Jarreth and his three bound companions—women who chose transformation over freedom, power over independence.
+When elven ranger Arivalene stumbles upon an enchanted tower deep in the Alderwood, she discovers sorcerer Jarreth and his three bound companions; women who chose transformation over freedom and power over independence.
 
 What begins as curiosity becomes something far more dangerous: the realization that surrender might not be weakness, but the magic she's been denying herself all along.
 
-**Harem Romance | Transformation Fantasy | Emotional & Explicit**
+**Harem Romance • Transformation Fantasy • Emotional &amp; Explicit**
 
-[Join the newsletter](#newsletter) for release updates and exclusive content.
+[Join the newsletter](/newsletter) for release updates and exclusive content.
 
 ---
 
@@ -30,7 +30,7 @@ What begins as curiosity becomes something far more dangerous: the realization t
 
 Get new release announcements, bonus scenes, and behind-the-scenes worldbuilding delivered to your inbox.
 
-[Subscribe to Newsletter](#) • 1-2 emails per month • Unsubscribe anytime
+[Subscribe to Newsletter](/newsletter) • 1-2 emails per month • Unsubscribe anytime
 
 ---
 

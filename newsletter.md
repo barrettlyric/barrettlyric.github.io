@@ -8,11 +8,11 @@ subtitle: Join the Reader Community
 
 Subscribe to receive:
 
-✨ **New Release Announcements** - Be the first to know when new books launch  
-📖 **Exclusive Bonus Scenes** - Stories and character moments not available anywhere else  
-🏰 **Behind-the-Scenes Worldbuilding** - Deep dives into magic systems, character backstories, and the Deepwood  
-🎨 **Early Cover Reveals** - See new covers before anyone else  
-💌 **Personal Updates** - What I'm reading, writing, and thinking about
+- **New Release Announcements** - Be the first to know when new books launch  
+- **Exclusive Bonus Scenes** - Stories and character moments not available anywhere else  
+- **Behind-the-Scenes Worldbuilding** - Deep dives into magic systems, character backstories, and the Alderwood  
+- **Early Cover Reveals** - See new covers before anyone else  
+- **Personal Updates** - What I'm reading, writing, and thinking about
 
 ---
 

@@ -13,8 +13,8 @@ I believe romance readers deserve stories that challenge them as much as they sa
 
 ### Currently Writing
 
-**A Ranger Reforged** - A harem romantasy novella set in an enchanted tower deep in the Deepwood. Expected Fall 2026.
+**A Ranger Reforged** - A harem romantasy novella set in an enchanted tower deep in the Alderwood. Expected Fall 2026.
 
 ---
 
-Want to connect? [Join my newsletter](#)
+Want to connect? [Join my newsletter](/newsletter)
