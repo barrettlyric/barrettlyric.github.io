@@ -1,0 +1,10 @@
+/* After you have your portrait and extracted colors */
+/* Example with forest/tower aesthetic */
+
+:root {
+  --main-color: #2d5016; /* Deep forest green */
+  --accent-color: #d4af37; /* Gold */
+  --link-color: #4a7c2c; /* Lighter green */
+}
+
+/* You can customize further once you know what colors you want */
